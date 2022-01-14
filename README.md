@@ -4,7 +4,7 @@ I am....
 
 ## 📬 Get in touch
 
-- LinkedIn: [linkedin.com/in/erfontanini](link)
+- LinkedIn: [linkedin.com/in/erfontanini](https://www.linkedin.com/in/ernesto-fontanini-135464205/)
 
 
 
